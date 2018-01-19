@@ -5,3 +5,6 @@ January 14, 2018:
 
 January 18, 2018:
 [The end of the conference era](https://marco.org/2018/01/17/end-of-conference-era)
+
+January 19, 2018:
+[The distribution of people living in extreme poverty has dramatically changed...](https://twitter.com/_JohnValJohn_/status/954326680058847233)
